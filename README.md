@@ -20,7 +20,7 @@
 
 3. #### 分享不易，欢迎赞助
 
-   <img src="https://tva1.sinaimg.cn/large/008i3skNgy1gq97a7yekmj30u0156tbu.jpg" alt="WechatIMG4" style="zoom:25%;" />
+   <img src="https://tva1.sinaimg.cn/large/008i3skNgy1gq97a7yekmj30u0156tbu.jpg" alt="WechatIMG4" style="zoom:10%;" />
 
 4. #### 如有疑问，欢迎联系QQ：2414489676
 
